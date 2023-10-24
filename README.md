@@ -1,3 +1,3 @@
 # Global-Superstore-Dashboard-PowerBi-
 
-![image](https://github.com/ksht88/Global-Superstore-Dashboard-PowerBi-/assets/104099053/9b51871a-1429-4460-959f-0378ddc76485)
+See Project : https://www.linkedin.com/posts/activity-7050401277301727233-f1KK?utm_source=share&utm_medium=member_desktop
